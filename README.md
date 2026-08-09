@@ -1,1 +1,2 @@
-Some hadith collections do not provide a grading, so make sure to verify the authenticity of the hadith online before believing it, acting upon it, or citing it.
+Some hadith collections do not provide an explicit grading for every narration. Therefore, verify the authenticity and grading of a hadith before believing it, acting upon it, or citing it.”
+
